@@ -1,1 +1,1 @@
-# Ameer-Oil-and-Soap-Industries
+# Ameer Oil & Soap Industries
